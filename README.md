@@ -2,7 +2,7 @@
 
 🎓 Information Systems undergraduate | 🧠 Tech enthusiast focused on automation and APIs
 📍 Uberlândia, MG – Brazil
-📫 valenciopedro16@gmail.com
+📫 valenciopedro158@gmail.com
 
 ---
 
